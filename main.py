@@ -1,1 +1,2 @@
 # jakiś kod
+# ONE I WAS SEVEN YEARS OLD YA
